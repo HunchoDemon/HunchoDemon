@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @HunchoDemon
 - 👀 I’m interested in Graphic Design
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Designs, or videos
 - 📫 How to reach me, Twitter: Hunchodemonn Instagram: Hunchodemonn Fiverr: HunchoDemon
